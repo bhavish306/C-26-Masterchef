@@ -1,0 +1,1 @@
+Many recipes require ingredients such as eggs and butter to stand at room temperature. This allows the butter to blend easily with other ingredients and the eggs will yield a higher cake volume. (For food safety reasons, don't leave the eggs at room temperature for more time than specified in the recipe.)
